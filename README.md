@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **ferreira-julien@live.fr**
 
-- ⚡️ Fun fact **Bouldering climber** 🧗🏼‍♂️
+- ⚡️ Fun fact **i love Bouldering** 🧗🏼‍♂️
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
